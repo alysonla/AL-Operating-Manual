@@ -37,9 +37,12 @@ I naturally think across disciplines. I'm comfortable discussing business strate
 * Taught English in Wuxi, China
 * Studied Buddhism in NE Thailand
 * Backpacked through Guatemala and Honduras
-* Stayed with an indigenious family in Panama  
-* Spoke at a Ruby Conference in Cape Town, South Africa 
-* Studied French in Paris and Montpellier
+* Honeymooned in Greece (Santorini, Mykonos, and Athens)
+* Stayed with an indigenious family in Panama
+* Spoke at a Ruby Conference in Cape Town, South Africa
+* Baby Mooned in Rome & Paris
 * Attended Taylor Swift's Eras Tour in Rio de Janeiro, Brazil
+* Studied French in Paris and Montpellier
 * Various trips to Mexico
 * Visited 30/63 US National Parks 
+* Hiked Grand Canyon Rim to Rim (N -> S) 
